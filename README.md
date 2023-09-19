@@ -2,7 +2,7 @@
 
 I'm currently learning at an engineering school.
 
-I play TTRPG when I can.
+I currently don't want to disclose more openly.
 
 Tchao !
 
