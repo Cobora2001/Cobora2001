@@ -2,6 +2,8 @@
 
 I'm currently learning at an engineering school.
 
+I play TTRPG when I can.
+
 Tchao !
 
 <!--
